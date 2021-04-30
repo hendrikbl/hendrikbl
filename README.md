@@ -6,7 +6,7 @@ What I do (or try):
 - 🐛 Coding
 - 🎨 Designing
 
-Not really interesting:
+About me (I know, no one cares)
 
 - 🌿 I'm mostly vegan
 - 🐷 I like animals
