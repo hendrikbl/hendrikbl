@@ -8,9 +8,9 @@ What I do (or try):
 
 About me (I know, no one cares)
 
-- 🌿 I'm mostly vegan
+- 🌿 I'm vegan
 - 🐷 I like animals
-- 🗑️ DotA is trash (just kidding (am I though?))
+- 🗑️ Dota 2 is trash (just kidding (am I though?))
 
 Stats are life:
 
